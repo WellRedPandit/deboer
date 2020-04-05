@@ -1,0 +1,3 @@
+# the great irony of the American left
+
+Is that democratic socialism is constantly posed as the more reasonable, more down-to-earth, achievable system than communism. And yet democratic socialism has never existed anywhere at any time in history ever. Efforts to establish it have been a litany of failure. Meanwhile communism wrote the 20th century. If you had to ask which has had more influence, more importance, which has done more to alter the world – it’s communism in an absolute rout. And I feel like this fact should be relevant to contemporary debates.
